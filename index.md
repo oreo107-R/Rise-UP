@@ -10,7 +10,7 @@ To encourage, explore new challenges and come up with solutions.
 
 ---
 
-## 🔎What you will find here🔎##
+## 🔎What you will find here🔎
 
 - ✨Inspirational quotes and thoughts
 - 🌱Personal growth tips
